@@ -3,4 +3,4 @@
 ## 该地址为看看社的网址发布的地方，各位看官可以收藏此地址，如果看看社不能访问了，请来这里查看最新的网址。
 
 ## 最新网址
-[www.kankanshe.com](www.kankanshe.com)
+[http://www.kankanshe.com/](www.kankanshe.com)
